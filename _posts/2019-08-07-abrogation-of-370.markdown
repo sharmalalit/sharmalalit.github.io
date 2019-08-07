@@ -9,12 +9,12 @@ BJP led NDA with support of other mainstream parties abolished temporary provisi
 
 So, this is what happened.
 
-1. Governor of J&K has all powers of legislative assembly as per article 92 of scrapped J&K state constitution. 
-2. Governor of J&K requested President of India to remove article 370 as per President's power in Article 370 part 3.
-3. As their is no "Constituent assembly" present in J&K, President in it's order made the correction to read it as "Legislative assembly" in article 367. Whole new part 4 is added into Article 367 in respect to J&K. 
+1. Governor of J&K has all powers of legislative assembly as per article 92 of erstwhile J&K state constitution. 
+2. Governor of J&K requested President of India to remove article 370 and gave permission to adopt Indian constitution. President based on his powers in Article 370 part 3, proposed a resolution for this to happen.
+3. As their is no "Constituent assembly" present in J&K, President in it's order made the correction to read it as "Legislative assembly" in article 367. Whole new part 4 is added into Article 367 in respect to J&K to ensure legality of these resolutions.
 Constituent assembly was dissolved in 1956 after constitution of J&K was created.
-4. BJP led parties voted to adopt these President resolutions as President resolutions can have merit only after both houses adopt it.
-5. Based on above points, President issued these resolutions in public gazette. There was no need for Constitution Amendment as steps to remove Article 370 were mentioned in article itself. 
+4. BJP led parties voted to adopt these President resolutions in boht houses.
+5. Based on above points, President issued these resolutions in public gazette. There was no need for Constitutional Amendments as steps to remove Article 370 were mentioned in article itself. 
 6. BJP led parties submitted and passed a new bill named J&K Re-organization bill to convert the J&K state into 2 UTs. Ladakh region was asking to be converted to UT since independence.
 J&K area was converted into UT to better handle terrorism and development of this region.
 
