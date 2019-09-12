@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Anvarat - a Guide"
+title:  "Anvarat - A Guide"
 date:   2019-09-13 00:49:00 +0530
 categories: poetry
 ---
